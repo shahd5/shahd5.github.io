@@ -1,2 +1,2 @@
 # shahd5.wedding.invite.github.io
-Pankti and Dhruv Wedding Invitation 
+[Pankti and Dhruv Wedding Invitation](https://shahd5.wedding.invite.github.io)
